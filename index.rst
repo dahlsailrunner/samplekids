@@ -12,7 +12,7 @@ own lives, but also *create or
 strengthen* some lasting 
 **bonds between you and them.**
 
-New v1.0 content.
+Here is some great new content that will is a preview.
 
 Throughout your journey you will 
 both likely learn new ``concepts`` and 
